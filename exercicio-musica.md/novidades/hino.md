@@ -1,0 +1,32 @@
+# Tá Escrito
+
+## Verso
+Quem cultiva a semente do amor
+Segue em frente e não se apavora
+Se na vida encontrar dissabor
+Vai saber esperar a sua hora
+Quem cultiva a semente do amor
+Segue em frente e não se apavora
+Se na vida encontrar dissabor
+Vai saber esperar a sua hora
+
+## Pré-refrão
+Às vezes a felicidade demora a chegar
+Aí é que a gente não pode deixar de sonhar
+Guerreiro não foge da luta e não pode correr
+Ninguém vai poder atrasar quem nasceu pra vencer
+É dia de sol, mas o tempo pode fechar
+A chuva só vem quando tem que molhar
+Na vida é preciso aprender
+Se colhe o bem que plantar
+É Deus quem aponta a estrela que tem que brilhar
+
+## Refrão
+Erga essa cabeça, mete o pé e vai na fé
+Manda essa tristeza embora
+Basta acreditar que um novo dia vai raiar
+Sua hora vai chegar
+erga essa cabeça, mete o pé e vai na fé
+Manda essa tristeza embora (manda essa tristeza embora)
+Basta acreditar que um novo dia vai raiar
+Sua hora vai chegar
